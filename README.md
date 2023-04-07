@@ -1,8 +1,3 @@
-### Olá! Eu sou o Vinícius😉
-
-
-
-
 
 ## My Skills:
 
